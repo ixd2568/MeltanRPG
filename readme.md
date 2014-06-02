@@ -1,3 +1,3 @@
 Meltan RPG
 
-Taiko was here
+Taiko wasn't here
